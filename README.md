@@ -1,0 +1,5 @@
+- not to be that guy but...
+- why are you reading this.
+- i'm just an ordinary guy
+- (unless i somehow get famous)
+- (which is never)
